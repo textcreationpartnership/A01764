@@ -38,9 +38,13 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-The vvorthy tract of Paulus Iouius, contayning a discourse of rare inuentions, both militarie and am
+TO THE RIGHT WORSHIP FVL SIR EDWARD Dimmock, Champion to her Maiestie, SAMVEL DANIEL wishèth happie TO HIS GOOD FREND SAMVEL DANIEL, N. W. Wisheth health.I Knowe not whether to excuse your nature (gooTO THE FRENDLY READER.I Thought it good (right worshipfull and curteous gentlemen) to communicate wi
 #####Body#####
-The vvorthy tract of Paulus Iouius, contayning a discourse of rare inuentions, both militarie and am
+
+1. HERE BEGIN THE DISCOVRSES OF PAVLVS IOVIVS BISHOP of Nocera, in the forme of a Dialogue had betweene him, and Lodouicus Dominicus.
+
+1. HERE FOLLOW, TOVCHING THE FORmer subiect, certaine notable deuises both militarie and amorous,
+
 **Types of content**
 
   * There are 26 **verse** lines!
